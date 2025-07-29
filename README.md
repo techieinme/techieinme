@@ -2,7 +2,7 @@
   
 Techie | Hungry fr Knowledge | Absolute Music Lover | singer | workaholic | a good Human Being |
 
-I am an experienced consultant with 10+ years of experience in the IT field specialized in 
+I am an experienced consultant with 12+ years of experience in the IT field specialized in 
 Open Source Technologies.
 
 Proficient in defining, communicating and fulfilling the project’s goal on time, breaking complex issues into manageable parts. Work collaboratively with team members to achieve common goals, while maintaining responsibilities and commitments. 
